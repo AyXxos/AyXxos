@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩‍🚀 I'm currently working on discord bot and websites<br>🤝 I'm looking for help with vue js<br>🐉 30 years of js<br>🎇Boss of https://dsc.gg/hardware-and-co
+👩‍🚀 I'm currently working on discord bot and websites<br>🤝 I'm looking for help with vue js<br>🐉 30 years of js<br>🎇Boss of [Hardware Fr](https://discord.gg/2YXe9DjXuB)
 
 
 ## 🌐 Socials:
