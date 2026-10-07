@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩‍🚀 I'm currently working on discord bot and websites<br>🤝 Developer fullsnack<br>🐉 32 years of js<br>🎇Boss of [Hardware Fr](https://discord.gg/2YXe9DjXuB)
+👩‍🚀 I'm currently working on discord bot and websites<br>🤝 Developer fullsnack<br>🐉 35 years of js<br>🎇Boss of [Hardware Fr](https://discord.gg/2YXe9DjXuB)
 
 
 ## 🌐 Socials:
